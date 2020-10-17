@@ -1,0 +1,26 @@
+Schiff: Intel belongs to American people, not Trump 02:59
+Washington (CNN)
+House Intelligence Chairman Adam Schiff said Sunday it is possible the House could subpoena intelligence officials to testify on election interference, a day after Director of National Intelligence John Ratcliffe informed members of Congress that the nation's top intelligence office will no longer deliver in-person briefings on election security issues.
+Asked by CNN's Dana Bash on "State of the Union" if he would subpoena intelligence officials to appear in a public hearing ahead of the November election, Schiff said it "is certainly one of the tools that we may use."
+"I can't speak for what decision ultimately we'll make. That's a decision that will have to go to the speaker," he said, referring to Democratic House Speaker Nancy Pelosi.
+Intelligence gathered on foreign interference in the 2020 election, Schiff said, belongs to the American public, not President Donald Trump.
+"This intelligence paid for by taxpayers doesn't belong to Donald Trump, it doesn't belong to the intelligence agencies, it belongs to the American people. The agencies are merely the custodians of that information," Schiff, a California Democrat, told Bash.
+Read More
+Analysis: Trump administration unleashes a new effort to undermine election integrity
+"And the American people ought to know what Russia is doing, they ought to know their President is unwilling to stand up to Vladimir Putin," Schiff added, continuing later: "And that information belongs to the American people, it doesn't belong to Donald Trump."
+CNN reported Saturday that the Office of the Director of National Intelligence has informed the House and Senate Select Committees on Intelligence that it'll no longer be briefing in-person on election security issues, according to letters obtained by CNN. Instead, ODNI will primarily provide written updates to the congressional panels, a senior administration official said.
+The official added that other agencies supporting election security, including the Department of Justice, Department of Defense and Department of Homeland Security, intend to continue briefing Congress.
+The comments from Schiff add to a growing list of criticisms lobbed at the administration in the wake of the announcement, which itself is a change that runs counter to the pledge of transparency and regular briefings on election threats by the intelligence community.
+In a joint statement Saturday, Schiff and Pelosi called the administration's move a "shocking abdication of its lawful responsibility to keep the Congress currently informed," while Senate Minority Leader Chuck Schumer said Ratcliffe "has made clear he's in the job only to protect Trump from democracy, not democracy from Trump."
+The announcement comes after the top intelligence official on election security issued a statement earlier this month saying China, Russia and Iran are seeking to interfere in the 2020 US election, a warning that prompted some backlash from Democrats on Capitol Hill who have continued to push for the public release of more information about the nature of those efforts.
+Top intelligence office informs congressional committees it'll no longer brief in-person on election security
+Ratcliffe told Fox News on Sunday that members of Congress have been leaking classified information for political reasons and claimed they are purposely downplaying the threat posed by China and hyping up the threat posed by Russia because it suits their political agenda.
+"I don't mean to minimize Russia, they are a serious national security threat," Ratcliffe said, adding that while China, Russia, Iran and other actors continue to look for ways to disrupt the US electoral process, the "threat from China is greater."
+Speaking about his claim that Democrats have leaked information, Ratcliffe said, "We're going to protect information from being leaked for political purpose. It's happened too much and I won't stand for it."
+Schiff told Bash that neither he nor any members of his staff have leaked any information pertaining to election interference and dismissed Trump's claim that intelligence is being leaked as "another lie."
+"They weren't concerned about leaks after the last briefing or they wouldn't have come back to offer another briefing. Something changed, Dana," he said. "What changed is, of course, the President, probably in another fit, saying I don't want Congress informed. Because the last time that Congress was informed, the director of national intelligence had to put out another statement to acknowledge the fact the Russians are helping Donald Trump again."
+Senate Homeland Security and Governmental Affairs Committee Chairman Ron Johnson told Bash in a separate interview Sunday that the issue over written briefings is "being blown so way out of proportion."
+"I can probably count on one or two fingers the things that are actually classified in those briefings," said Johnson, a Republican from Wisconsin. "There is no surprise here. We know that foreign actors are trying to influence, trying to destabilize our political system."
+This story has been updated with additional developments Sunday.
+CNN's Jake Tapper, Zachary Cohen, Aileen Graef, Vivian Salama and Chandelis Duster contributed to this report.
+Search

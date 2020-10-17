@@ -1,0 +1,20 @@
+1:46
+By the Numbers: Trump’s taxes vs. the average American
+A look at how President Donald Trump’s recent federal income tax payments detailed by the New York Times compare to what other Americans pay on average.
+A look at how President Donald Trump’s recent federal income tax payments detailed by the New York Times compare to what other Americans pay on average.The Associated Press
+NEW YORK -- President Donald Trump ’s accountant must turn over his tax records to a New York state prosecutor, an appeals court ruled Wednesday in a decision that likely sets up a second trip to the U.S. Supreme Court over the issue.
+The 2nd U.S. Circuit Court of Appeals in Manhattan said in a written decision that a stay of a lower-court decision will remain in effect so Trump’s lawyers can appeal the ruling to the high court.
+In August, a district court judge had rejected their renewed efforts to invalidate a subpoena that the office of Manhattan District Attorney Cyrus Vance Jr. issued to Trump’s accounting firm last year.
+Part of Vance's probe pertains to an investigation related to payoffs to two women — porn actress Stormy Daniels and model Karen McDougal — to keep them quiet during the 2016 presidential campaign about alleged extramarital affairs with Trump. Trump has denied the affairs.
+Vance is seeking more than eight years of the Republican president’s personal and corporate tax records, but has disclosed little about what prompted him to request the records. In one recent court filing, Vance's lawyers have said he was justified in demanding them because of public reports of “extensive and protracted criminal conduct at the Trump Organization.”
+A Justice Department spokesperson said the department was reviewing the ruling.
+The Supreme Court in July ruled 7-2 against the president, rejecting Trump’s arguments that he can’t even be investigated, let alone charged with any crime, while he is in office. But the court said Trump can challenge the subpoena on other grounds, like anyone else who receives a subpoena.
+The likelihood that the taxes would be released was unlikely to be resolved before the November election, especially since the high court is down to eight justices after the death of Ruth Bader Ginsburg. And any release would not result in immediate public disclosures, since grand jury proceedings are secret.
+Through his lawyers, Trump argued that the subpoena was issued in bad faith, might have been politically motivated and amounted to harassment of him, especially since the wording copied the language in congressional subpoenas. The lawyers also maintained that seeking tax records dating back to 2011 was a “fishing expedition" and the overbroad request should be rejected.
+In its decision, the 2nd Circuit disagreed.
+"We hold that none of the President’s allegations, taken together or separately, are sufficient to raise a plausible inference that the subpoena was issued ‘out of malice or an intent to harass,'” the appeals court said.
+In filings with the 2nd Circuit, Vance's lawyers cited public reports including news accounts and Congressional testimony by former Trump personal lawyer Michael Cohen saying it was common for the Trump Organization to submit falsified financial records when the company applied for loans.
+Vance's lawyers wrote that if Trump and his entities made misstatements about business properties, wherever located, to New York-based business partners, insurers, potential lenders, or tax authorities, those misstatements could establish crimes including falsifying business records, insurance and tax fraud and scheming to defraud.
+Last month, The New York Times reported that it had obtained over two decades of tax return data for Trump and hundreds of his companies. It said he paid just $750 in federal income tax the year he entered the White House and no income tax at all in 11 of 18 years it reviewed.
+At the time, Trump dismissed the report as “fake news” and maintained he has paid taxes , but he provided no specifics.
+Associated Press writer Michael Balsamo in Washington contributed to this report.

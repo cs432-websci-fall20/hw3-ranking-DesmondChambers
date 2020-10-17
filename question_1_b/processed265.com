@@ -1,0 +1,26 @@
+'All I can do is pray': 60-year-old cook facing homelessness
+(CNN)
+As President Donald Trump was painting a  positive picture of the coronavirus pandemic and urging states to reopen the nation's businesses and schools, data from the White House coronavirus task force released Monday shows he was getting increasingly dire reports about the spread of the pandemic in July and August.
+The House Select Subcommittee on Coronavirus on Monday published eight weeks' worth of state reports compiled by the White House task force.
+The task force releases these reports each week to governors' offices for their respective states, and has previously declined to make them publicly available or confirm the authenticity of any of the data reported. There had been some discussion on a call with governors earlier this month, audio of which was obtained by CNN, about making some of the data publicly accessible in real time, but that has yet to happen.
+The latest on the coronavirus pandemic
+"Rather than being straight with the American people and creating a national plan to fix the problem, the President and his enablers kept these alarming reports private while publicly downplaying the threat to millions of Americans," subcommittee Chairman James Clyburn, a South Carolina Democrat, said in a statement.
+The most recent of the eight reports released by the subcommittee is dated August 9. Since then, the course of the pandemic has changed, improving in some places and getting worse in others.
+Read More
+The 459-page August 9 report has a section for each state, which includes extensive data on the state's cases down to a county level, as well as detailed, private recommendations to state and local officials to slow the spread, including promoting social distancing and face coverings, implementing contact tracing, and closing bars and nightclubs in "red zone" states.
+The "red zone" indicates there are more than 100 new cases per 100,000 population and/or test positivity is above 10%, per the task force's definition. There were 20 states in the task force's "red zone" as of August 9.
+The "yellow zone" indicates between 10 and 100 new cases per 100,000 population and/or test positivity between 5 and 10%, per the task force's definition. There were 28 states plus the District of Columbia in the "yellow zone."
+Just two states, Maine and Vermont, were in the green zones for test positivity and cases.
+On the same day that report was released, Trump claimed that coronavirus cases were rising due to increased testing, which is disproven by the many states in the report with rising test positivity rates -- meaning the proportion of people who test positive compared to negative, which can signal a burgeoning outbreak.
+"Cases up because of BIG Testing! Much of our Country is doing very well. Open the Schools!" he tweeted , going on to advocate for the reopening of schools in press conferences that week.
+The more granular data in the report show how Trump has sought to spin good news and cherry-pick positive data.
+"If you look at some of the states that had a flare up recently, they're all doing very well. Florida is going down rapidly. I want to give a lot of credit to the governors. Florida is going down, and Arizona is going down, way down. They've done a fantastic job," Trump said during an August 12 briefing.
+It is true that Florida and Arizona had seen a decrease in new cases and test positivity that week. But both states were still experiencing significant spread and were in the "red zone" for cases and test positivity in the August 9 report. The report recommended measures in Florida such as "consider a statewide mask mandate for counties with 50 or more active cases," "ensure messaging to all citizens to limit social gatherings to 10 or fewer people even within families," and "expand testing capacity in public health labs... to reduce turnaround times."
+"Many locations are really in fantastic shape, some with very little, if any, problem. Large portions of the United States," Trump said at that August 12 briefing.
+Just one of the previous reports had been made public, the July 14 report, which was obtained by journalism nonprofit Center for Public Integrity. That report showed 18 states in the "red zone" and called for the rolling back of reopenings, including the closing of bars and gyms in many places.
+The White House is lambasting the subcommittee's decision to release the reports.
+"In the midst of an ongoing pandemic, some members of Congress have chosen to irresponsibly issue a partisan report completely for the purpose of falsely distorting the President's record to protect the health and safety of the American people and save millions of lives," deputy press secretary Judd Deere told CNN in a statement.
+"The Coronavirus Task Force has been providing tailored recommendations to individual states for months encouraging Governors and local health officials to act immediately while at the same time President Trump and the entire administration has reminded Americans to follow CDC recommendations and best practices to slow the spread as we work to reopen," Deere added.
+This story has been updated with response from the White House.
+CNN's Manu Raju contributed to this report.
+Search

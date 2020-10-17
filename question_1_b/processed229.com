@@ -1,0 +1,18 @@
+Watch Elon Musk show how the Neuralink brain implant works — using a pig
+(CNN)
+Uber and Lyft are facing a new round of legal pressure in their home state of California over how they classify their workers.
+California's Labor Commissioner's Office said Wednesday that it filed lawsuits against the two companies for allegedly committing wage theft by misclassifying their on-demand workers as independent contractors instead of employees.
+Under a new California law, which went into effect on January 1 and is known as Assembly Bill 5 or AB-5, companies must prove workers are free from company control and perform work outside the usual course of the companies' business in order to classify workers as independent contractors rather than employees.
+The law has long been viewed as a potential existential threat to many gig economy companies like Uber and Lyft, which built up their businesses in large part by treating their on-demand workers as independent contractors. In addition to not receiving basic worker protections, drivers also pay their own expenses, including gas and vehicle maintenance.
+New York Uber and Lyft drivers win key battle over unpaid unemployment benefits
+The California Labor Commissioner's lawsuits will seek to stop the companies from misclassifying gig workers and also recover "unpaid minimum wages for all hours worked, rest period wages, unpaid overtime wages, liquidated damages due for minimum wage violations, itemized wage statement violations, paid sick leave violations, penalties for failure to pay all wages due during employment and at separation of employment, and reimbursement of business expenses," according to a letter sent to Uber and Lyft workers who had filed wage claim complaints. As part of the lawsuits, individual wage claims will be dismissed.
+Read More
+"The state labor agency has botched thousands of claims. They know they don't have the ability to process these claims, so they sent them into a legal abyss, where they know it will take years to resolve them," said Lyft spokesperson Julie Wood in a statement to CNN Business.
+In a statement, Uber spokesperson Davis White said: "The vast majority of California drivers want to work independently, and we've already made significant changes to our app to ensure that remains the case under state law. When 3 million Californians are without a job, our leaders should be focused on creating work, not trying to shut down an entire industry."
+The ongoing legal challenges in the state come at an uncertain time for both companies as they grapple with the pandemic, which significantly cut demand for their core ride-hailing businesses. Both Lyft and Uber have undergone layoffs in recent months and have long histories of steep losses.
+Uber, Lyft and DoorDash have each put $30 million behind a ballot initiative, with additional support from Instacart and Postmates (which was recently acquired by Uber). If the initiative passes, it would exempt them from the AB-5 law, but offer drivers some benefits.
+In May, the companies were hit with a lawsuit by California Attorney General Xavier Becerra and a coalition of city attorneys who alleged the companies are misclassifying their workers in violation of the AB-5 law. In June, Becerra and the city attorneys filed for a preliminary injunction to force the two ride-hailing companies to comply with the law.
+Uber and Lyft pushed back on the action.
+"We believe the courts should let the voters decide," Lyft's Wood said in a statement provided to CNN Business at the time, adding that the company planned to oppose the push to reclassify workers.
+This story has been updated to clarify that California's Labor Commissioner is behind the lawsuits.
+Search

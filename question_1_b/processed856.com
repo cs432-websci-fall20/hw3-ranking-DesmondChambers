@@ -1,0 +1,28 @@
+A Super-Spreading Presidency, Experimental Treatments, and More Coronavirus News
+Catch up on the most important updates from this week.
+To revist this article, visit My Profile, then View saved stories .
+Photograph: Drew Angerer/Getty Images
+Save Story
+To revist this article, visit My Profile, then View saved stories .
+Covid continues its spread through the White House, researchers look at new treatments and symptoms, and the scientific community takes on politics. Here’s what you should know:
+Want to receive this weekly roundup and other coronavirus news? Sign up here !
+Headlines
+The super-spreading presidency of Donald Trump
+In the week since Donald Trump announced via Twitter that he and the First Lady had contracted Covid-19 , epidemiologists and journalists have been trying to figure out how exactly the virus spread through the White House. While Amy Coney Barrett’s Supreme Court nomination has been identified as a possible super-spreader event, the reality is that there are many, many ways the president could have been infected. The White House’s strategy has focused on testing—though implementation was reportedly casual at best —rather than enforcing mask wearing or any other more reliable preventative measures. And, really, almost every decision Trump has made since January has enabled the spread of coronavirus rather than curtailed it.
+To date, at least 34 White House staffers and other contacts have tested positive, but the president remains determined to flout public health guidelines. He has returned to the Oval Office and may return to public events tomorrow , though experts say he may not have defeated Covid-19 yet. CDC involvement in contact tracing at the White House has been limited. Add the upcoming election into the mix and we’re looking at one of the most dangerous months our country has faced in a long time.
+Researchers explore experimental treatments and unexpected side effects
+All eyes are on an experimental antibody cocktail from Regeneron that the president claims “cured” his case of Covid-19. Trump has said he has “emergency use authorization all set,” and predictably, the company applied for emergency approval from the FDA shortly thereafter. But the truth is, we know very little about the drug. According to the only data available so far, only six people in Trump’s age group have received the same dose he did. And drugs that seem promising in the early stages of testing often end up flopping. It’s also worth noting that the drug was developed using cells derived from aborted fetal tissue, a research method the White House opposes .
+Elsewhere in the world of coronavirus research, experts are investigating a possible link between Covid-19 and diabetes. A new registry lets doctors around the world upload anonymized data from patients with abnormal blood sugar and no history of diabetes in the hope that compiling the  information will make it easier to discern when and how the virus triggers the onset of diabetes.
+The scientific community navigates politics
+In response to the president’s repeated, albeit improbable claims that a vaccine will be ready by Election Day, the scientific community this week sought to reaffirm public trust in the process. The FDA released stricter rules for authorizing a Covid-19 vaccine, making it all but impossible there will be a vaccine before November 3. And Operation Warp Speed encouraged developers not to apply for emergency use authorization until they have a substantial number of vaccines ready to be sent out.
+The president’s approach to coronavirus has repeatedly been at odds with science. On Thursday, The New England Journal of Medicine, the world’s most prestigious medical journal, broke with tradition and published an editorial condemning the way that American leaders have “taken a crisis and turned it into a tragedy.” It’s the latest of several historically nonpartisan science journals to denounce the administration’s pandemic response. Meanwhile, a seemingly apolitical project at the National Wildlife Health Center in Madison, Wisconsin, to study the impacts of the virus on the endangered black-footed ferret was shuttered last month. The decision came from James Reilly, Trump’s director of the US Geological Survey.
+Daily Distraction
+Over the past decade, an online community has sprung up over something delightfully analog: paper planners .
+Something to Read
+Amazon has funneled a huge amount of money into the gaming industry, but its games have been unsuccessful and its game-dev employees are drained—if they’re still employed at all. Why has the company failed to do what small teams of developers have excelled at? WIRED’s Cecilia D’Anastasio spoke to former employees of Amazon Game Studios to find out .
+Sanity Check
+Gaming peripherals aren’t just good for entertainment—they’re great for your work from home setup as well.
+One Question
+What does voter outreach look like during a pandemic?
+During a typical election year, civic groups flock to college campuses to help students register to vote. This year, as many students learn remotely, that’s not possible—but pivoting to digital outreach may be for the best . While less than half of Americans 18 to 24 years old were enrolled in college in 2018, more than 70 percent are on social media. This election cycle, many of these platforms have introduced information hubs and registration drives to help young users navigate the voting process. Snapchat, for one, has helped register more than 1.1 million users to vote in November. Despite the challenges the pandemic has presented, experts and organizers say they’re cautiously optimistic about youth turnout for the 2020 election.
+More From WIRED on Covid-19

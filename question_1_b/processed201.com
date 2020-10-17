@@ -1,0 +1,30 @@
+By Jennifer Hansler , Kylie Atwood and Michael Conte, CNN
+Updated 1:38 PM ET, Wed July 15, 2020
+US Secretary of State Mike Pompeo speaks during a press conference at the State Department in Washington, DC on June 24, 2020. (Photo by MANDEL NGAN / POOL / AFP)
+Washington (CNN)
+Secretary of State Mike Pompeo on Wednesday announced visa restrictions on employees of Chinese technology companies, including Huawei , in the latest Trump administration move against Beijing.
+The US "will impose visa restrictions on certain employees ... of Chinese technology companies like Huawei that provide material support to regimes engaging in human rights violations and abuses globally," Pompeo told reporters at a State Department press briefing.
+The top US did not elaborate on which employees would be targeted or how many people would be affected.
+Pompeo's announcement comes a day after President Donald Trump announced he would sign a bill and an executive order punishing China for steps that are widely seen as an attempt to crush democratic freedoms in Hong Kong, and railed at China for "unleashing ... upon the world" the global coronavirus pandemic.
+In an interview with The Hill later Wednesday, Pompeo added that the US is looking at limits on other Chinese tech companies as well.
+Read More
+"Whether it's TikTok or any of the other Chinese communications platforms, apps, infrastructure, this administration has taken seriously the requirement to protect the American people from having their information end up in the hands of the Chinese Communist Party," he said.
+In a statement Wednesday, Pompeo said that certain employees will be ineligible for entry into the US "if the Secretary of State has reason to believe the alien's entry 'would have potentially serious adverse foreign policy consequences for the United States.'"
+Putting companies on notice
+"Companies impacted by today's action include Huawei, an arm of the CCP's surveillance state that censors political dissidents and enables mass internment camps in Xinjiang and the indentured servitude of its population shipped all over China," Pompeo said. "Certain Huawei employees provide material support to the CCP regime that commits human rights abuses," he added.
+"Telecommunications companies around the world should consider themselves on notice: If they are doing business with Huawei, they are doing business with human rights abusers," Pompeo said.
+The Trump administration has long pressured allies against using Huawei technology, warning that doing so could put intelligence sharing at risk. In his press conference Wednesday, Pompeo declared that "the tide is turning" against the Chinese telecom giant.
+At that press conference, which comes ahead of a trip to London, Pompeo again commended the UK for its decision to ban Huawei from its 5G networks -- an about-face just months after the UK had said it could handle Huawei's presence in the British market -- and said he believed they had made the decision "for the right reasons," and not because of the threat of US sanctions, despite a spokesperson for the UK Prime Minister saying that this was in fact the case.
+"You suggested they did this because of US sanctions," he said at a press conference Wednesday. "I don't actually think that's true. I actually think they did this because their security teams came to the same conclusion that ours have -- is that you can't protect this information. This information that transits across these untrusted networks that are of Chinese origin, will almost certainly end up in the hands of the Chinese Communist Party and so I think they did this for the right reasons."
+However, the British Prime Minister's spokesman said Wednesday that the "impact of the US sanctions" announced in May was the reason behind the UK's reversal on Huawei's role in its 5G telecoms network.
+The sanctions "were like nothing we had ever seen before," and made it "impossible" for the UK's National Cyber Security Centre to "guarantee the security of Huawei equipment in the future," the spokesman said.
+US officials have said they believe that Huawei, which is closely linked to the Chinese government, could use its 5G networks to spy on or sabotage foreign companies and governments. China and Huawei have denied these charges. The super-highspeed networks will be crucial for emerging technologies, such as self-driving cars.
+China's ambassador to the UK, Liu Xiaoming, said Wednesday the UK government's decision to ban Huawei from its 5G telecoms network will affect the willingness of Chinese companies to invest in the UK.
+Asked during a virtual conference Wednesday about the consequences of the UK's decision, the ambassador said it "undermines the trust between the two countries" and that it was "disheartening."
+"The way you are treating Huawei will be followed very closely by other Chinese businesses. The mutual trust was undermined. It will be very difficult for the businesses to have the confidence to have more investment."
+The ambassador also took a dig at the US. "China and Europe should see each other as partners and abandon the cold war mentality," he said, adding: "those who see China as systematic rival or as a potentially hostile state have got it all wrong. They have chosen the wrong target and they are heading in the wrong direction."
+Wednesday's actions against employees of the tech companies are the latest in a flurry of US administrative actions against China.
+Trump signed legislation Tuesday night that would impose sanctions on businesses and individuals that help China restrict Hong Kong's autonomy. He also released his executive order aimed at ending preferential treatment for Hong Kong.
+"Hong Kong will now be treated the same as mainland China," Trump had said in the Rose Garden of the order. "No special privileges, no special economic treatment and no export of sensitive technologies."
+CNN's Nicole Gaouette, Jamie Crawford and Kevin Liptak in Washington, and Luke McGee, Hilary McGann and Sharon Braithwaite in London contributed to this report
+Search

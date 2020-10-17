@@ -1,0 +1,19 @@
+By Jennifer Hansler , CNN
+Updated 12:32 PM ET, Sun September 20, 2020
+US Secretary of State Mike Pompeo speaks at the Richard Nixon Presidential Library, July 23, 2020, in Yorba Linda, California. (Photo by ASHLEY LANDIS/POOL/AFP via Getty Images)
+(CNN)
+Secretary of State Mike Pompeo said Saturday evening that the US has reimposed UN sanctions against Iran , a move expected to be effectively ignored by global allies and adversaries alike.
+The latest move is the latest in the "maximum pressure" campaign against Tehran -- one that has left the US largely isolated. It comes after the administration failed to extend the conventional weapons embargo set to expire next month under the Iran nuclear deal.
+"The United States expects all UN Member States to fully comply with their obligations to implement these measures. In addition to the arms embargo, this includes restrictions such as the ban on Iran engaging in enrichment and reprocessing-related activities, the prohibition on ballistic missile testing and development by Iran, and sanctions on the transfer of nuclear- and missile-related technologies to Iran, among others. If UN Member States fail to fulfill their obligations to implement these sanctions, the United States is prepared to use our domestic authorities to impose consequences for those failures and ensure that Iran does not reap the benefits of UN-prohibited activity," Pompeo said in a statement.
+Other countries have rejected the US' argument that it could reimpose the UN sanctions that had been lifted under the Iran nuclear deal as the Trump administration withdrew from the deal in 2018. They are not expected to recognize the snapback sanctions.
+"In the coming days, the United States will announce a range of additional measures to strengthen implementation of UN sanctions and hold violators accountable," Pompeo said without providing additional details on those measures.
+Read More
+In a letter to the UN Security Council and to the UN Secretary-General, Iran urged the Council to block any attempt by the US to reimpose international sanctions.
+"Given that the stated objective of the United States is to completely ruin the Joint Comprehensive Plan of Action and to that end, its strategy is to create legal complication through presenting unilateral arbitrary interpretations and pseudo-legal arguments, the Islamic Republic of Iran trusts that the members of the Security Council will, once again, reject the United States' continued attempt to abuse the Security Council's process, thus undermining the authority and credibility of the Council and the United Nations," UN Iranian Ambassador Majid Takht Ravanchi said in the letter.
+He also responded to the news on Twitter, saying that "UNSC member states continue to maintain US is NOT a JCPOA participant, so its claim of "snapback" is null & void."
+"US is STILL in violation of JCPOA and Res 2231—swimming against int'l currents will only bring it more isolation," he tweeted.
+In a tweet Sunday, Iranian Foreign Minister Javad Zarif said while the "world says NO Security Council sanctions were restored," Pompeo "threatens to punish a world that refuses to live in his parallel universe." He added that President Donald Trump should change tack before Pompeo "further turns (Make America Great Again) into a global laughing stock."
+Experts have told CNN that this unilateral effort -- which comes less than two months before the presidential election -- is unlikely to have an impact on arms sales on its own. Some say the move further alienates the US from its E3 allies -- Germany, France and the United Kingdom -- and serves to further undercut the 2015 Iran nuclear agreement.
+This story has been updated with comments from Iranian Foreign Minister Javad Zarif.
+CNN's Richard Roth and Hira Humayun contributed to this report.
+Search
