@@ -125,7 +125,7 @@ Briefly compare and contrast the rankings produced in Q2 and Q3.
 
 ### Q3. Rank with PageRank Answer
 
-All my page ranks are 0/10 except for one that was n/a.
+All my page ranks are 0/10 except for one that was n/a. I think because all most of these pages are news source and are dynamic. 
 
 
 ![page ranks](./question_3/PageRanks.png)
