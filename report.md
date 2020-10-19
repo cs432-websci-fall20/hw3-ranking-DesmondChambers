@@ -94,7 +94,7 @@ To completed this step and found 10 processed files with the word 'program' appe
 
 [question 2](./question_2)
 
-[question 2 code](./question_2/raw_TF-IDF_calculator.ipynb)
+[question 2 code](./question_2/TF-IDF_calculator.ipynb)
 
 
 ![alt text](./question_2/TF-IDF.png)
