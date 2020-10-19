@@ -54,6 +54,8 @@ The processed htmls and the code used to created them are in the qestion_1_b fol
 
 [question 1b](./question_1_b)
 
+[question 1b code](./question_1_b/boilerplates_extractor.ipynb)
+
 ### Q2. Rank with TF-IDF
 
 Choose a query term (e.g., "coronavirus") that is not a stop word (e.g, "the"), not super-general (e.g., "web"), and not HTML markup (e.g., "http") that is found in at least 10 of your documents. (Hint: you can use `grep -c` on the processed files to identify a good query.)  If the term is present in more than 10 documents, choose any 10 English-language documents from different domains from the result set.  (If you do not end up with a list of 10 URIs, you've done something wrong.)
